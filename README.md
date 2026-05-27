@@ -1,0 +1,1 @@
+# kapadai-privacy-policy
